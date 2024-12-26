@@ -9,6 +9,6 @@
 <br/>
 
 ⭐️ **Let's Collaborate and Build Something Amazing!**  
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/mahima-agarwal21)) or check out my [GitHub](https://github.com/Mahimagarwal)
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/mahima-agarwal21) or check out my [GitHub](https://github.com/Mahimagarwal)
 
 </div>
